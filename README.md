@@ -17,4 +17,6 @@ Say no to discrimination. We should be treated as equals.
 
 ## 各界声音
 
+## 反歧视相关法律知识
+
 ## 反歧视许可证
